@@ -2,7 +2,7 @@
 
 ![image_alt](https://github.com/Siphe247/Liverpool-vs-Real-Madrid-UCL-2022-23/blob/1c5b06cc98cdba05ca2679f444335a25b0651add/Liverpool%20v%20Real%20Madrid%202-5%20UCL%202022%3A23.jpg)
 
-##📌What this project is about:
+## 📌What this project is about:
 
 This is a project where I tracking key events of the UEFA Champions League game between Liverpool and Real Madrid. 
 Although it does not give the full picture of the game, I just wanted to capture the highlights of the game🤏🏾
