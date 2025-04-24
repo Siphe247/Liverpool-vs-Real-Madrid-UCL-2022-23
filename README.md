@@ -18,7 +18,7 @@ The events I focused on were:
 
 ---
 
-Sequence of goals and assists in sequence of the full game and not the highlights
+Time sequence of events are in context of the full game and not the highlights
 
 1st Half:
 - Darwin Nunez puts Liverpool ahead after 4 minutes with a stunning Darwin Nunez backheek flick, courtesy of a Mohamed Salah cross, and it is first blood Liverpool!
