@@ -22,15 +22,16 @@ Sequence of goals and assists in sequence of the full game and not the highlight
 
 1st Half:
 Darwin Nunez puts Liverpool ahead after 4 minutes with a stunning Darwin Nunez backheek flick, courtesy of a Mohamed Salah cross, and it is first blood Liverpool!
-In the 14th minute, Salah scores and it's a moment to forget for Thibaut Courtois.
-6 minutes later, Vinicius Jr pulls one back for Los Blancos from the left wing, after a lovely one-two with Karim Benzema and slots his shot to the bottom right-hand corner. Game on!🏃‍♂️
-In the 36th minute, Vinicius grabs his second. Alisson attempts to play a pass back to Joe Gomez but hits Vinicius, evening the scoreline.
-2-2 is the half-time scoreline.
+-In the 14th minute, Salah scores and it's a moment to forget for Thibaut Courtois.
+-6 minutes later, Vinicius Jr pulls one back for Los Blancos from the left wing, after a lovely one-two with Karim Benzema and slots his shot to the bottom right-hand corner. Game on!🏃‍♂️
+-In the 36th minute, Vinicius grabs his second. Alisson attempts to play a pass back to Joe Gomez but hits Vinicius, evening the scoreline.
+-Halftime score: 2-2
 
 2nd Half:
-Vinicius is fouled by Gomez outside the left penalty-area and wins his side a free-kick. Modric takes the free-kick and finds Militao's head, who converts from 5 yards. They take the lead for the first time in the game, it is now 3-2!!!💥
-7 minutes later, Benzema's shot takes a deflection off Gomez's thigh, wrongfooting Alisson and it is 4-2 to Madrid at Anfield. They've completely turned this game on its head.
-10 minutes later, Modric blazes past Liverpool's midfield spectacularly, finding Vinicus, who then finds Benzema and takes a few touches before placing his shot to perfection. What a counterattack by Real Madrid and they have put on a 5-star performance against Liverpool🌟.
+-Vinicius is fouled by Gomez outside the left penalty-area and wins his side a free-kick. Modric takes the free-kick and finds Militao's head, who converts from 5 yards. 
+They take the lead for the first time in the game, it is now 3-2!!!💥
+-7 minutes later, Benzema's shot takes a deflection off Gomez's thigh, wrongfooting Alisson and it is 4-2 to Madrid at Anfield. They've completely turned this game on its head.
+-10 minutes later, Modric blazes past Liverpool's midfield spectacularly, finding Vinicus, who then finds Benzema and takes a few touches before placing his shot to perfection. What a counterattack by Real Madrid and they have put on a 5-star performance against Liverpool🌟.
 
 The End!
 
