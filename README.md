@@ -25,7 +25,7 @@ Sequence of goals and assists in sequence of the full game and not the highlight
 - In the 14th minute, Salah scores and it's a moment to forget for Thibaut Courtois.
 - 6 minutes later, Vinicius Jr pulls one back for Los Blancos from the left wing, after a lovely one-two with Karim Benzema and slots his shot to the bottom right-hand corner. Game on!🏃‍♂️
 - In the 36th minute, Vinicius grabs his second. Alisson attempts to play a pass back to Joe Gomez but hits Vinicius, evening the scoreline.
--Halftime score: 2-2
+- Halftime score: 2-2
 
 2nd Half:
 - Vinicius is fouled by Gomez outside the left penalty-area and wins his side a free-kick. Modric takes the free-kick and finds Militao's head, who converts from 5 yards. 
