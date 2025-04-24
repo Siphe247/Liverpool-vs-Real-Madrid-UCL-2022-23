@@ -4,7 +4,7 @@ Liverpool vs Real Madrid | 2022/23 UEFA Champions League Round of 16 1st leg
 
 ## 📌What this project is about:
 
-This is a project where I tracking key events of the UEFA Champions League game between Liverpool and Real Madrid. 
+This is a project where I track key events in the UEFA Champions League game between Liverpool and Real Madrid. 
 Although it does not give the full picture of the game, I just wanted to capture the highlights of the game🤏🏾
 
 The events I focused on were:
