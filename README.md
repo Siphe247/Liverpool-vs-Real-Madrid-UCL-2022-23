@@ -33,7 +33,5 @@ They take the lead for the first time in the game, it is now 3-2!!!💥
 -7 minutes later, Benzema's shot takes a deflection off Gomez's thigh, wrongfooting Alisson and it is 4-2 to Madrid at Anfield. They've completely turned this game on its head.
 -10 minutes later, Modric blazes past Liverpool's midfield spectacularly, finding Vinicus, who then finds Benzema and takes a few touches before placing his shot to perfection. What a counterattack by Real Madrid and they have put on a 5-star performance against Liverpool🌟.
 
-The End!
-
 ---
 ↗️ Onwards and upwards!
